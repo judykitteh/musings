@@ -1,0 +1,4 @@
+musings
+=======
+
+thoughts, questions, etc.
