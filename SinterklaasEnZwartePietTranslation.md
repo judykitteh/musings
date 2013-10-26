@@ -1,16 +1,18 @@
-My translation of an excellent article on the debate surrounding Sinterklaas and Zwarte Piet, with heavy help from [Google Translate](http://translate.google.com) and [bab.la](http://en.bab.la/dictionary/dutch-english/).
+##"[Sinterklaas, zwarte piet en onze beleving](http://dylanvanrijsbergen.nl/2013/10/13/sinterklaas-zwarte-piet-en-onze-beleving/)"
+###by Dylan van Rijsbergen.
 
-"[Sinterklaas, zwarte piet en onze beleving](http://dylanvanrijsbergen.nl/2013/10/13/sinterklaas-zwarte-piet-en-onze-beleving/)," by Dylan van Rijsbergen.
+_My translation of an excellent article on the debate surrounding Sinterklaas and Zwarte Piet, with heavy help from [Google Translate](http://translate.google.com) and [bab.la](http://en.bab.la/dictionary/dutch-english/). The bolded sentences are ones that I don't feel are quite right.
+
 
 I associate Sinterklaas and Zwarte Piet -- since I was very young -- with security. They are located in a very old part of my brain, like the smell of gingerbread, hot chocolate, and the taste of saccharine marzipan. They are found in a safe place full of family togetherness, laughter, and the exciting anticipation of gifts. The Sinterklaas celebration reminds me of youthful bliss, of cold, dark days fueled with warm, light longing. These memories are important and they are in one way or another vulnerable, perhaps because they are from my early childhood: all of that time is fragile and very personal.
 
 I share a similar memory with many Dutch people. It is something that we pass on from generation to generation. I would want my daughter to experience this also, that feeling of togetherness, that security of Sinterklaas. I want her to sing the familiar songs and put out her shoe, with a large carrot and some hay in it. I want her to get up in the morning and cannot wait to see what's inside.
 
-My first reaction when I heard someone link zwarte piet to racism, was hence also downright dismissive. The little compartment in my brain where Sinterklaas and Zwarte Piet are, that cluster of associations I mentioned above, was far from the little compartment where the concept of racism belonged. I associate racism with misery, with the Ku Klux Klan, with burning crosses, with lynchings, with violent skinheads, with "for whites only." Racism is horrible and _insecure_, it had nothing, absolutely nothing to do with _my perception_ of celebrating Sinterklaas. 
+My first reaction when I heard someone link zwarte piet to racism, was hence also downright dismissive. The little compartment in my brain where Sinterklaas and Zwarte Piet are, that cluster of associations I mentioned above, was far from the little compartment where the concept of racism belonged. I associate racism with misery, with the Ku Klux Klan, with burning crosses, with lynchings, with violent skinheads, with "for whites only." **Racism is horrible and _insecure_, it had nothing, absolutely nothing to do with _my perception_ of celebrating Sinterklaas.** 
 
 >Racisme is naar en _onveilig_, het had niets, maar dan ook niets te maken met _mijn beleving_ van het Sinterklaasfeest.
 
-Therefore I made of it: Zwarte Piet is a fairy tale character, much like the Austrian Krampus. Or a chimney sweeper. Or whatever, but above all, not a racist caricature of a black man. Or I said that I thought it's not an important discussion, that zwarte piet was actually once a tradition. That there were more things that were not right, then I started pondering about examples. Such as Jewish cakes and white custard. Are they not offensive? Well.
+Therefore I made of it: Zwarte Piet is a fairy tale character, much like the Austrian Krampus. Or a chimney sweeper. Or whatever, but above all, not a racist caricature of a black man. **Or I said that I thought it's not an important discussion, that zwarte piet was only once a tradition.** That there were more things that were not right, then I started pondering about examples. Such as Jewish cakes and white custard. Are they not offensive? Well.
 
 >Of ik zei dat ik het geen belangrijke discussie vond, dat zwarte piet nou eenmaal traditie was.
 
