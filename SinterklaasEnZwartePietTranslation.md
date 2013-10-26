@@ -6,15 +6,13 @@ I associate Sinterklaas and Zwarte Piet -- since I was very young -- with securi
 
 I share a similar memory with many Dutch people. It is something that we pass on from generation to generation. I would want my daughter to experience this also, that feeling of togetherness, that security of Sinterklaas. I want her to sing the familiar songs and put out her shoe, with a large carrot and some hay in it. I want her to get up in the morning and cannot wait to see what's inside.
 
-My first reaction when I heard someone link zwarte piet to racism, was hence also downright dismissive. The little compartment in my brain where Sinterklaas and Zwarte Piet are, that cluster of associations I mentioned above, was far from the little compartment where the concept of racism belonged. I associate racism with misery, with the Ku Klux Klan, with burning crosses, with lynchings, with violent skinheads, with "for whites only." Racism is horrible and _insecure_, it had nothing, absolutely nothing to do with _my perception_ of Sinterklaas. 
+My first reaction when I heard someone link zwarte piet to racism, was hence also downright dismissive. The little compartment in my brain where Sinterklaas and Zwarte Piet are, that cluster of associations I mentioned above, was far from the little compartment where the concept of racism belonged. I associate racism with misery, with the Ku Klux Klan, with burning crosses, with lynchings, with violent skinheads, with "for whites only." Racism is horrible and _insecure_, it had nothing, absolutely nothing to do with _my perception_ of celebrating Sinterklaas. 
 
 >Racisme is naar en _onveilig_, het had niets, maar dan ook niets te maken met _mijn beleving_ van het Sinterklaasfeest.
 
-Therefore I made of it: Zwarte Piet is a fairy tale character, much like the Austrian Krampus. Or a chimney sweeper. Or whatever, but above all, not a racist caricature of a black man. Or I said that I thought it's not an important discussion, that zwarte piet was actually once a tradition.
+Therefore I made of it: Zwarte Piet is a fairy tale character, much like the Austrian Krampus. Or a chimney sweeper. Or whatever, but above all, not a racist caricature of a black man. Or I said that I thought it's not an important discussion, that zwarte piet was actually once a tradition. That there were more things that were not right, then I started pondering about examples. Such as Jewish cakes and white custard. Are they not offensive? Well.
 
 >Of ik zei dat ik het geen belangrijke discussie vond, dat zwarte piet nou eenmaal traditie was.
-
-That there were more things that were not right, then I started pondering about examples. Such as Jewish cakes and white custard. Are they not offensive? Well.
 
 Het heeft me tijd gekost om zonder dit soort verkrampte uitvluchten (want dat zijn het) neutraal naar het probleem te durven kijken. De achtergrond van mijn reactie was namelijk _mijn beleving_. Mijn beleving van Sinterklaas en zwarte piet is warm, veilig en geborgen, maar voor heel veel mensen met een donkere huidkleur is die beleving anders. Voor hen is het Sinterklaasfeest, en dat komt vooral door zwarte piet, juist _onveilig_ en ongemakkelijk. Want hoewel zwarte piet door de jaren heen zijn Surinaamse accent is kwijtgeraakt, evenals zijn grote oorbellen en dikke lippen, is het nog steeds een springerige zwarte man met kroeshaar, het knechtje van de witte Sinterklaas.
 
