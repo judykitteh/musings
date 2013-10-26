@@ -1,7 +1,7 @@
 ##"[Sinterklaas, zwarte piet en onze beleving](http://dylanvanrijsbergen.nl/2013/10/13/sinterklaas-zwarte-piet-en-onze-beleving/)"
 ###by Dylan van Rijsbergen.
 
-_My translation of an excellent article on the debate surrounding Sinterklaas and Zwarte Piet, with heavy help from [Google Translate](http://translate.google.com) and [bab.la](http://en.bab.la/dictionary/dutch-english/). The bolded sentences are ones that I don't feel are quite right.
+_My translation of an excellent article on the debate surrounding Sinterklaas and Zwarte Piet, with heavy help from [Google Translate](http://translate.google.com) and [bab.la](http://en.bab.la/dictionary/dutch-english/). The bolded sentences are ones that I don't feel are quite right. Please feel free to correct me or make suggestions._
 
 
 I associate Sinterklaas and Zwarte Piet -- since I was very young -- with security. They are located in a very old part of my brain, like the smell of gingerbread, hot chocolate, and the taste of saccharine marzipan. They are found in a safe place full of family togetherness, laughter, and the exciting anticipation of gifts. The Sinterklaas celebration reminds me of youthful bliss, of cold, dark days fueled with warm, light longing. These memories are important and they are in one way or another vulnerable, perhaps because they are from my early childhood: all of that time is fragile and very personal.
